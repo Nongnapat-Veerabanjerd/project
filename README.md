@@ -3,5 +3,5 @@
 - 📚 I’m currently studying Management Information Systems at Chulalongkorn University.
 - 📬 How to reach me 'nongnapat.veerabanjerd@gmail.com'
 
-You can find me on LinkedIn:   
-Verified Badge: https://badgr.com/backpack/badges/64d1a37c6b98db1ce648571c
+You can find me on LinkedIn: www.linkedin.com/in/nongnapat-veerabanjerd-a108b0272  
+Verified Badge: https://badgr.com/public/assertions/3fdWjJDcSj65IY3ZKWWINA?identity__email=ploytoom12300@gmail.com
