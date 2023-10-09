@@ -2,3 +2,6 @@
 - 💖 I’m interested in Data Analysis, Data Science and Social Listening tools.
 - 📚 I’m currently studying Management Information Systems at Chulalongkorn University.
 - 📬 How to reach me 'nongnapat.veerabanjerd@gmail.com'
+
+You can find me on LinkedIn: 
+Verified Badge: https://api.badgr.io/public/assertions/3fdWjJDcSj65IY3ZKWWINA
