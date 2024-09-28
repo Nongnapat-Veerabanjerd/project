@@ -5,6 +5,7 @@
 
 You can find me on LinkedIn: www.linkedin.com/in/nongnapat-veerabanjerd-a108b0272  
 Verified Badge: 
+- Data Engineer: https://drive.google.com/file/d/1RZ0XMcLcnXCXVs6cUOqPOylaXNE26wB7/view?usp=drive_link
 - Data Analyst: https://badgr.com/public/assertions/3fdWjJDcSj65IY3ZKWWINA?identity__email=ploytoom12300@gmail.com
 - Social Listening: https://drive.google.com/file/d/177llJ0cDiqbicjpvzu0A_3GLTeYDVTO7/view?usp=sharing
 - SAP S/4HANA: https://drive.google.com/file/d/1LTUL7L0W_TnuThVSx_lN1D1-Zdjmnqs_/view?usp=drive_link
